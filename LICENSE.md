@@ -1,4 +1,4 @@
-
+vip blue lock rivals Script is the best blue lock rivals Script, featuring instant win and invisibility. Safe and powerful for all your needs.
 
 
 
